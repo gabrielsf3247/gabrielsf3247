@@ -6,4 +6,5 @@ _meu nome e gabriel , moro em terra rica e aui e mue site de estudos_ 🇧🇷�
 -  _17 anos_ 🎂
 -  _pobre_ 😢
 
-![](https://media1.tenor.com/m/6UIzU5-JnWEAAAAC/dimensi%C3%B3n-agradable.gif)
+![](https://media.tenor.com/ASJ03I717tAAAAAi/joe-hmmm-hmmm.gif)
+*CURIOSO*
